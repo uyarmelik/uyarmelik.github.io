@@ -1,1 +1,0 @@
-# uyarmelik.github.io
